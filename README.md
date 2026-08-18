@@ -1,4 +1,4 @@
-Sou brasileiro, 20 anos e solteiro.
+Sou brasileiro, 24 anos.
 Tenho experiência em áreas:
 - Técnicas
 - Suporte Efetivo
